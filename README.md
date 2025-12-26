@@ -1,0 +1,1 @@
+# Dist_Mac_ABBYY_FineReader_PDF_15_2_14_TNT
